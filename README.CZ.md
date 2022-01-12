@@ -8,11 +8,13 @@
 ## Ingredience
 
  * 1 Kg hovězího masa -- nejlépe hovězí zadní, může být i maso na roládu (Tesco)
- * Minimálně hrst pálivých chilly papriček
- * Worchester omáčka
- * Sojová omáčka
- * Pepř
- * Pitná voda
+ * Worchester omáčka - 80 ml
+ * Sojová omáčka - 80 ml
+ * Pitná voda - 80-100 ml
+ * Čerstvě namletý pepř
+ * Lžička mleté papriky
+ * Lžička česnekového prášku / 4 stroužky česneku
+ * [hrst pálivých chilly papriček]
 
 ## Délka přípravy
 
